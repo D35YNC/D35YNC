@@ -5,7 +5,7 @@ if you are interested in my repositories, please write to me about the defects o
 
 ---
 
-<img src="https://cdn.betterttv.net/emote/5c85dd4b2bc49a0419824494/3x"/> <img src="https://cdn.betterttv.net/emote/5c85dd4b2bc49a0419824494/3x"/> <img src="https://cdn.betterttv.net/emote/5c85dd4b2bc49a0419824494/3x"/> <img src="https://cdn.betterttv.net/emote/5c85dd4b2bc49a0419824494/3x"/> <img src="https://cdn.betterttv.net/emote/5c85dd4b2bc49a0419824494/3x"/> <img src="https://cdn.betterttv.net/emote/5c85dd4b2bc49a0419824494/3x"/>  
+<img src="https://cdn.betterttv.net/emote/5c85dd4b2bc49a0419824494/3x"/> <img src="https://cdn.betterttv.net/emote/5c85dd4b2bc49a0419824494/3x"/> <img src="https://cdn.betterttv.net/emote/5c85dd4b2bc49a0419824494/3x"/> <img src="https://cdn.betterttv.net/emote/5c85dd4b2bc49a0419824494/3x"/> <img src="https://cdn.betterttv.net/emote/5c85dd4b2bc49a0419824494/3x"/> <img src="https://cdn.betterttv.net/emote/5c85dd4b2bc49a0419824494/3x"/> <img src="https://cdn.betterttv.net/emote/5c85dd4b2bc49a0419824494/3x"/>  
 <!--
 **D35YNC/D35YNC** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 ### Hi there 👋

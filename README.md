@@ -3,6 +3,8 @@
 
 if you are interested in my repositories, please write to me about the defects of the code. I would like to improve my skills. <img src="https://cdn.betterttv.net/emote/5d63e543375afb1da9a68a5a/1x"/>
 
+Contact me: [Telegram](https://t.me/D35YNC)
+
 ---
 
 <img src="https://cdn.betterttv.net/emote/5c85dd4b2bc49a0419824494/3x"/> <img src="https://cdn.betterttv.net/emote/5c85dd4b2bc49a0419824494/3x"/> <img src="https://cdn.betterttv.net/emote/5c85dd4b2bc49a0419824494/3x"/> <img src="https://cdn.betterttv.net/emote/5c85dd4b2bc49a0419824494/3x"/> <img src="https://cdn.betterttv.net/emote/5c85dd4b2bc49a0419824494/3x"/> <img src="https://cdn.betterttv.net/emote/5c85dd4b2bc49a0419824494/3x"/> <img src="https://cdn.betterttv.net/emote/5c85dd4b2bc49a0419824494/3x"/>  

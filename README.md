@@ -12,4 +12,4 @@ if you are interested in my repositories, please write to me about the defects o
 
 ---
 
-![Pepego](./.github/pepego.webp) ![Pepego](./.github/pepego.webp) ![Pepego](./.github/pepego.webp) ![Pepego](./.github/pepego.webp) ![Pepego](./.github/pepego.webp) ![Pepego](./.github/pepego.webp)
+<div align="center"> <img src=".github/pepego.webp"/> <img src=".github/pepego.webp"/> <img src=".github/pepego.webp"/> <img src=".github/pepego.webp"/> <img src=".github/pepego.webp"/> <img src=".github/pepego.webp"/> </div>
